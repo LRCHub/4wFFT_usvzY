@@ -1,4 +1,4 @@
-# HOYO-MiX – Moon Halo [Honkai Impact 3Rd "Everlasting Flames" Animated Short Theme]
+# HOYO-MiX – Moon Halo [Honkai Impact 3Rd "Everlasting Flames" Animated Short Theme]（feat. 茶理理、TetraCalyx、Hanser）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
